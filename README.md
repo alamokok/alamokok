@@ -1,0 +1,2 @@
+# alamokok
+alamokok
